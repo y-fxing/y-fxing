@@ -1,7 +1,7 @@
 ⠀
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀                      ⠀ ⠀⠀ ⋆˚✿˖°
 
-<img width="1000" height="562" alt="image" src="https://github.com/user-attachments/assets/089b63da-d717-4487-a086-6d873eab2b5e" />
+<img <img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/ab524088-b29e-41b0-860b-3f64850a0da4" />
 
 
 
