@@ -1,5 +1,4 @@
-⠀
-⠀⠀ ⠀⠀ ⠀⠀ ⠀                      ⠀ ⠀⠀                              ⋆˚✿˖°
+
 
                                          " Im your knight, after all. Goodnight, Snow White"
 
